@@ -1,5 +1,7 @@
 ![FRbt_L_UUAEM0KV](https://user-images.githubusercontent.com/79625284/168068854-aea16665-20b3-436f-8066-66ca5d3c3629.png)
 
+![dfh12](https://user-images.githubusercontent.com/79625284/168070283-8cee0e3f-90fd-4482-8ff9-faec78e64d02.jpg)
+
 ### 来自新加坡的感恩：大法开启崭新人生
 
 文: 新加坡法轮功学员 
